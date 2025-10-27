@@ -1,1 +1,1 @@
-#Yauda bang pake aja gpp ikhlas lahir batin kok mksi ya
+PLEASE MAKE SURE YOU USING THIS JS FOR EDUCATION NOT FOR ATTACKING.
